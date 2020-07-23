@@ -1,4 +1,9 @@
-### Hi there 👋
+# Hi! I'm Ru 🌷
+I'm so glad you're here! I'm Ru (she/hers/她) -- a student at the University of Michigan. I'm a writer who likes reading too much Ursula K. Le Guin, an aspiring marathon runner, and a Yankees fan. It's great to meet you.🌿
+
+## How I work
+I read under the same particular tree at Battery Park almost every day for three years when I was in high school. When I do things I love, I tend to focus on the thing and forget everything else in the world. If I'm too much in my head, give me a nudge to share what's in my brain. I don't have a particular process but a simple request that I have in place: be kind. 
+
 
 <!--
 **yaruluo/yaruluo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
