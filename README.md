@@ -15,7 +15,7 @@ I read under the same particular tree at Battery Park almost every day for three
 
 💬 Ask me about... what I'm [reading](https://www.goodreads.com/user/show/118504126-yaru-luo) right now
 
-📫 How to reach me: send me a message on [LinkedIn](https://www.linkedin.com/in/yaruluo/) or email me at yaruluo09@gmail.com
+📫 How to reach me: send me a message on [LinkedIn](https://www.linkedin.com/in/yaruluo/), [Twitter](https://twitter.com/yaruluo09), or email me at yaruluo09@gmail.com
 
 <!--
 ## Status
