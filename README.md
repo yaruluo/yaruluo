@@ -13,7 +13,7 @@ I read under the same particular tree at Battery Park almost every day for three
 
 🤔 I’m looking for help with... executing javascript commands on mobile
 
-💬 Ask me about... what I'm [reading](https://www.goodreads.com/user/show/118504126-yaru-luo) right now
+💬 Ask me about... what I'm [reading](https://www.goodreads.com/user/show/118504126-yaru-luo) or [listening to](https://open.spotify.com/user/22higkqu3v4rzbbi65p7zkfna) right now
 
 📫 How to reach me: send me a message on [LinkedIn](https://www.linkedin.com/in/yaruluo/), [Twitter](https://twitter.com/yaruluo09), or email me at yaruluo09@gmail.com
 
