@@ -7,7 +7,7 @@ I read under the same particular tree at Battery Park almost every day for three
 ## Status
 🔭 I’m currently working on... uploading my portfolio to [my personal site](https://www.yaruluo.com)
 
-🌱 I’m currently learning... jQuery
+🌱 I’m currently learning... dependency management with Apache Maven
 
 👯 I’m looking to collaborate on... projects in need of technical writers
 
