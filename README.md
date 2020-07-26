@@ -1,4 +1,4 @@
-# Hi, I'm Ru 🌷
+# Hi, I'm Ru 🌷👩🏻‍💻
 I'm so glad you're here! I'm Ru (she/hers/她) -- a student at the University of Michigan. I'm a writer who likes reading tons of Ursula K. Le Guin, an aspiring marathon runner, and a Yankees fan. It's great to meet you!🌿
 
 ## How I work
