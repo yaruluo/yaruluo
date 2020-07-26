@@ -5,7 +5,7 @@ I'm so glad you're here! I'm Ru (she/hers/她) -- a student at the University of
 I read under the same particular tree at Battery Park almost every day for three years when I was in high school. I can get rote like that sometimes. When I do things I love, I tend to focus on the thing and forget everything else in the world. If I'm too much in my head, give me a nudge to share what's in my brain.💫
 
 ## Status
-🔭 I’m currently working on... uploading my portfolio to [my personal site](yaruluo.com)
+🔭 I’m currently working on... uploading my portfolio to [my personal site](www.yaruluo.com)
 
 🌱 I’m currently learning... jQuery
 
