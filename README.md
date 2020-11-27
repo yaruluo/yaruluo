@@ -12,7 +12,7 @@ I'm so glad you're here! I'm Ru (she/hers/她) -- a student at Pomona College. I
 
 💬 Ask me about... what I'm [reading](https://www.goodreads.com/user/show/118504126-yaru-luo) or [listening to](https://open.spotify.com/user/22higkqu3v4rzbbi65p7zkfna) right now
 
-📫 How to reach me: send me a message on [LinkedIn](https://www.linkedin.com/in/yaruluo/), [Twitter](https://twitter.com/yaruluo09), or email me at yaruluo09@gmail.com
+📫 How to reach me: send me a message on [Twitter](https://twitter.com/yaruluo09), [LinkedIn](https://www.linkedin.com/in/yaruluo/), or email me at yaruluo09@gmail.com
 
 <!--
 
