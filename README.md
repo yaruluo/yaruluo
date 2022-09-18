@@ -1,5 +1,5 @@
 # Hi, I'm Ru 🌷👩🏻‍💻
-I'm so glad you're here! I'm Ru (she/hers/她) -- a student at Pomona College. I'm a writer who likes reading tons of Ursula K. Le Guin, an aspiring marathon runner, and a Yankees fan. It's great to meet you!🌿
+I'm so glad you're here! I'm Ru (she/hers/她) -- a student at Pomona College. I'm a writer who likes reading tons of Ursula K. Le Guin, a powerlifter, and a Yankees fan. It's great to meet you!🌿
 
 ## Status
 🔭 I’m currently working on... uploading my portfolio to [my personal site](https://www.yaruluo.com)
